@@ -17,9 +17,9 @@
 - cenoura a gosto
 
 # Modo de preparo
-Leve uma panela ao fogo com água, sal, um fio de óleo e espere ferver.
-Adicione o arroz lavado e mexa bem.
-Diminua o fogo, deixe a água secar e retire o arroz do fogo.
-Em uma panela, leve uma caçarola ao fogo com a medida de manteiga e frite as passas e as ervilhas.
-Despeje a mistura em uma tigela funda e junte a cebolinha verde, a cenoura, o pimentão, a cebola, a salsa e o parmesão.
-Adicione o arroz cozido e misture tudo cuidadosamente.
+Leve uma panela ao fogo com água, sal, um fio de óleo e espere ferver.\
+Adicione o arroz lavado e mexa bem.\
+Diminua o fogo, deixe a água secar e retire o arroz do fogo.\
+Em uma panela, leve uma caçarola ao fogo com a medida de manteiga e frite as passas e as ervilhas.\
+Despeje a mistura em uma tigela funda e junte a cebolinha verde, a cenoura, o pimentão, a cebola, a salsa e o parmesão.\
+Adicione o arroz cozido e misture tudo cuidadosamente.\
