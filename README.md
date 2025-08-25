@@ -1,5 +1,5 @@
 ## Livro de Receitas
- feito por thailiny e miguel\
+ feito por thailiny e miguel
 
 Súmario:
 - [Brigadeiro](/brigadeiro.md)
